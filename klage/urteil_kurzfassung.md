@@ -1,5 +1,7 @@
 # Gerichtsurteil: Landgericht Köln (Az. 5 O 385/21)
 
+analysiert mit KI (Kurzfassung)
+
 **Datum des Urteils:** 18.11.2025  
 **Gericht:** Landgericht Köln, 5. Zivilkammer  
 **Beteiligte:** 

@@ -1,5 +1,7 @@
 # Gerichtsurteil: Landgericht Köln (Az. 5 O 385/21)
 
+analysiert mit KI (etwes ausführlicher)
+
 **Aktenzeichen:** 5 O 385/21  
 **Gericht:** Landgericht Köln – IM NAMEN DES VOLKES  
 **Datum der Verhandlung:** 18.11.2025  
