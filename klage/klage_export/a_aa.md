@@ -3,7 +3,7 @@
 ## Klage
 Brandwand zum östlichen Nachbarn hofseitig nur 25 cm (statt 30 cm) über Dach hoch geführt.
 
-## Klage erwiderung
+## Klageerwiderung
 Brandwand erhöht im Juni 2020
 
 ## Bemerkungen / Replik
